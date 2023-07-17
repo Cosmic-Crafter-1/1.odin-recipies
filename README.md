@@ -15,4 +15,4 @@ That may include:
      -- (which apparantely seems to have originated in palace and 
 took 100 years to come out of royalty :O )
 4. Thatte Idli
-     -- the soft melting sexy stuff.
+     -- the soft melting-in-the-mouth sexy stuff.
